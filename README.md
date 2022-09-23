@@ -1,1 +1,1 @@
-My first readme
+i had a hectic day
